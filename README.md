@@ -1,4 +1,4 @@
-Hi 👋
+Hi 👋 My name is Alicia Mariela Mogliani.
 
 I'm an IT and Talent Acquisition Professional with +10 years of work experience in the Software industry 👩🏻‍💻 .
 
